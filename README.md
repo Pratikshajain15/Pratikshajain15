@@ -1,4 +1,4 @@
-# Hi, I'm Pratiksha Jain 👋
+# Hi, I'm Pratiksha Salecha 👋
 
 ### Robotics & Automation Engineering Student | Robotics | Computer Vision | Industrial Automation
 
